@@ -1,1 +1,1 @@
-# Ampas_Dark_System.iajm6-fj
+Github Ini Telah Diawasi Oleh Dark System Jika Ingin Melepas Nya Maka Join Ch @yatimitu123
